@@ -1,4 +1,4 @@
 # NewsFire-NewsSite
 
 
-![v0dgcWstc2](https://user-images.githubusercontent.com/109097651/178756780-b2eeaf8c-5a76-4963-8df2-e82af3a7fac3.gif)
+![eVoDeAqgpp](https://user-images.githubusercontent.com/109097651/178758228-279e4850-fb24-43b8-be53-138087768725.gif)
